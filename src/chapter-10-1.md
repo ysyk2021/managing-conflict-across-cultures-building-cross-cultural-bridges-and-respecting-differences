@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points and Strategies
+Recap of Key Points and Strategies
 ==========================================================
 
 Managing conflict across cultures is a complex and challenging task. Effective conflict management involves building cross-cultural bridges, respecting differences, and fostering a culture of inclusivity and respect. In this book, we have discussed various techniques and strategies for managing conflict across cultures. In this final chapter, we will recap the key points and strategies.

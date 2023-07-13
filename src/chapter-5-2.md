@@ -1,4 +1,4 @@
-Chapter 5: Building Cross-Cultural Bridges: Fostering a Culture of Inclusivity and Respect
+Fostering a Culture of Inclusivity and Respect
 ==========================================================================================
 
 Effective cross-cultural conflict management requires individuals to build bridges across cultures, fostering inclusivity and respect. In this chapter, we will explore techniques for building cross-cultural bridges and creating a culture of inclusivity and respect.

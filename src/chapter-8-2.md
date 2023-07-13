@@ -1,4 +1,4 @@
-Chapter 8: Evaluating the Effectiveness of Cross-Cultural Conflict Management: Evaluation and Feedback Techniques
+Evaluation and Feedback Techniques
 =================================================================================================================
 
 Effective cross-cultural conflict management requires continuous evaluation and feedback. In this chapter, we will explore various techniques for evaluating the effectiveness of cross-cultural conflict management and providing feedback.

@@ -1,4 +1,4 @@
-Chapter 2: Overview of Cross-Cultural Conflict Management: The Impact of Cross-Cultural Communication on Conflict Resolution
+The Impact of Cross-Cultural Communication on Conflict Resolution
 ============================================================================================================================
 
 Effective communication is essential for managing conflicts across cultures. However, cross-cultural communication can be complicated by language barriers, cultural differences in communication styles, and different expectations around communication. In this chapter, we will explore the impact of cross-cultural communication on conflict resolution.

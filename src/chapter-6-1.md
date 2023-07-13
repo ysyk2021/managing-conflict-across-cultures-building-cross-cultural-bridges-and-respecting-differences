@@ -1,4 +1,4 @@
-Chapter 6: Managing Conflict Across Cultures: Techniques for Managing Conflict Across Cultures
+Techniques for Managing Conflict Across Cultures
 ==============================================================================================
 
 Managing conflicts across cultures requires a unique set of skills and techniques. In this chapter, we will explore various techniques that can be used to manage conflict effectively across cultures.

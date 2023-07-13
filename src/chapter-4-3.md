@@ -1,4 +1,4 @@
-Chapter 4: Communicating Effectively Across Cultures: Active Listening and Empathy
+Active Listening and Empathy
 ==================================================================================
 
 Effective communication is essential for managing conflict across cultures. However, communication can be challenging when dealing with individuals from different cultural backgrounds who have different communication styles and norms. In this chapter, we will discuss the importance of active listening and empathy in communicating effectively across cultures.

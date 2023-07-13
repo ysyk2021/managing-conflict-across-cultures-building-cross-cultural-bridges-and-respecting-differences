@@ -1,4 +1,4 @@
-Chapter 7: Leveraging Technology for Cross-Cultural Conflict Management: Virtual Collaboration Tools and Video Conferencing
+Virtual Collaboration Tools and Video Conferencing
 ===========================================================================================================================
 
 Technology has become an integral part of our lives, and can be leveraged to facilitate cross-cultural conflict management. In this chapter, we will explore two key technologies for leveraging technology in cross-cultural conflict management: virtual collaboration tools and video conferencing.

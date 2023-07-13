@@ -1,4 +1,4 @@
-Chapter 5: Building Cross-Cultural Bridges: Techniques for Building Cross-Cultural Bridges
+Techniques for Building Cross-Cultural Bridges
 ==========================================================================================
 
 Building cross-cultural bridges is essential for effective cross-cultural conflict management. In this chapter, we will explore various techniques for building cross-cultural bridges and promoting mutual understanding and respect.

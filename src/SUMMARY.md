@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining the Importance of Managing Conflict Across Cultures](chapter-1-1.md)
   - [The Benefits and Challenges of Building Cross-Cultural Bridges](chapter-1-2.md)
   - [Why Understanding Cultural Differences is Critical for Effective Conflict Management](chapter-1-3.md)
@@ -37,9 +36,5 @@
   - [Techniques for Addressing Ethical Considerations](chapter-9-1.md)
   - [Respecting Cultural Differences and Sensitivities](chapter-9-2.md)
   - [Avoiding Cultural Appropriation and Tokenism](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Recap of Key Points and Strategies](chapter-10-1.md)
-  - [Final Recommendations for Managing Conflict Across Cultures](chapter-10-2.md)
-  - [Future Directions for Research and Practice](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

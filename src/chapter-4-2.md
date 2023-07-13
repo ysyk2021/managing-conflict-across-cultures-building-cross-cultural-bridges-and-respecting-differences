@@ -1,4 +1,4 @@
-Chapter 4: Communicating Effectively Across Cultures: Verbal and Nonverbal Communication
+Verbal and Nonverbal Communication
 ========================================================================================
 
 Effective communication is essential for managing conflict across cultures. However, communication can be challenging when dealing with individuals from different cultural backgrounds who have different communication styles and norms. In this chapter, we will discuss how to communicate effectively across cultures, both verbally and nonverbally.

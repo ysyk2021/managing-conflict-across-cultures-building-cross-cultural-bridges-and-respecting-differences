@@ -1,4 +1,4 @@
-Chapter 6: Managing Conflict Across Cultures: Recognizing and Addressing Different Types of Conflict
+Recognizing and Addressing Different Types of Conflict
 ====================================================================================================
 
 Recognizing and addressing different types of conflict is essential for effective cross-cultural conflict management. In this chapter, we will explore common types of conflict and strategies for managing them across cultures.

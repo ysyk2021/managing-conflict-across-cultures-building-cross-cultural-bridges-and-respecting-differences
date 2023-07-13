@@ -1,4 +1,4 @@
-Chapter 6: Managing Conflict Across Cultures: Negotiation and Mediation Techniques
+Negotiation and Mediation Techniques
 ==================================================================================
 
 Negotiation and mediation are essential techniques for managing cross-cultural conflicts. In this chapter, we will explore various negotiation and mediation techniques that can be used to manage conflicts across cultures.

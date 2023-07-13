@@ -1,4 +1,4 @@
-Chapter 2: Overview of Cross-Cultural Conflict Management: Techniques for Overcoming Common Challenges in Cross-Cultural Conflict Management
+Techniques for Overcoming Common Challenges in Cross-Cultural Conflict Management
 ============================================================================================================================================
 
 Managing conflict across cultures can be a complex and challenging task. In this chapter, we will provide an overview of cross-cultural conflict management and discuss techniques for overcoming common challenges in cross-cultural conflict management.

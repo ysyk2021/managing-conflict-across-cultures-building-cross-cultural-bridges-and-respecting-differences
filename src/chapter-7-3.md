@@ -1,4 +1,4 @@
-Chapter 7: Leveraging Technology for Cross-Cultural Conflict Management: Online Dispute Resolution Platforms
+Online Dispute Resolution Platforms
 ============================================================================================================
 
 Technology has revolutionized the way we communicate and interact with each other, and it has also presented new opportunities for cross-cultural conflict management. In this chapter, we will discuss how technology can be leveraged for cross-cultural conflict management, specifically through online dispute resolution platforms.

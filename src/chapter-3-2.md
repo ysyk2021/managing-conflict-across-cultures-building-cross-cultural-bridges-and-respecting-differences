@@ -1,4 +1,4 @@
-Chapter 3: Understanding Cultural Differences: Culture and Identity
+Culture and Identity
 ===================================================================
 
 Understanding cultural differences is essential for managing conflict across cultures. One key aspect of cultural differences is the relationship between culture and identity. In this chapter, we will discuss the importance of culture and identity in understanding cultural differences.

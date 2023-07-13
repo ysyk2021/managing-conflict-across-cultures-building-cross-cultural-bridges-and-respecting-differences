@@ -1,4 +1,4 @@
-Chapter 3: Understanding Cultural Differences: Stereotyping and Prejudice
+Stereotyping and Prejudice
 =========================================================================
 
 Understanding cultural differences is essential for managing conflict across cultures. However, cultural differences can also lead to stereotyping and prejudice, which can exacerbate conflicts and hinder effective communication. In this chapter, we will discuss the importance of understanding cultural differences, as well as techniques for overcoming stereotypes and prejudices.

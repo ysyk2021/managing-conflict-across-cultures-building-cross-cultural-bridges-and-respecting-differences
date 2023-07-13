@@ -1,4 +1,4 @@
-Chapter 9: Ethical Considerations in Cross-Cultural Conflict Management: Techniques for Addressing Ethical Considerations
+Techniques for Addressing Ethical Considerations
 =========================================================================================================================
 
 Managing conflicts across cultures requires not only effective communication skills and an understanding of cultural differences but also a deep commitment to ethical principles and practices. In this chapter, we will explore the ethical considerations in cross-cultural conflict management and techniques for addressing them.

@@ -1,4 +1,4 @@
-Chapter 7: Leveraging Technology for Cross-Cultural Conflict Management: Techniques for Leveraging Technology for Cross-Cultural Conflict Management
+Techniques for Leveraging Technology for Cross-Cultural Conflict Management
 ====================================================================================================================================================
 
 Technology has become an integral part of our lives, and can be leveraged to facilitate cross-cultural conflict management. In this chapter, we will explore various techniques for leveraging technology for cross-cultural conflict management.

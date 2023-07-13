@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Future Directions for Research and Practice
+Future Directions for Research and Practice
 ===================================================================
 
 Managing conflict across cultures is a complex and challenging task that requires a deep understanding of cultural differences, effective communication skills, and the ability to navigate power dynamics. In this final chapter, we will discuss future directions for research and practice in the field of cross-cultural conflict management.

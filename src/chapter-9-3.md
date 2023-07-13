@@ -1,4 +1,4 @@
-Chapter 9: Ethical Considerations in Cross-Cultural Conflict Management: Avoiding Cultural Appropriation and Tokenism
+Avoiding Cultural Appropriation and Tokenism
 =====================================================================================================================
 
 Cross-cultural conflict management requires a deep understanding of cultural differences and sensitivities. In this chapter, we will explore ethical considerations related to avoiding cultural appropriation and tokenism in cross-cultural conflict management.

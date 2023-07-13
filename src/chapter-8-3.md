@@ -1,4 +1,4 @@
-Chapter 8: Evaluating the Effectiveness of Cross-Cultural Conflict Management: Continuous Improvement in Cross-Cultural Conflict Management Practices
+Continuous Improvement in Cross-Cultural Conflict Management Practices
 =====================================================================================================================================================
 
 Effective cross-cultural conflict management requires continuous improvement and evaluation. In this chapter, we will explore various methods for evaluating the effectiveness of cross-cultural conflict management practices and techniques for continuous improvement.

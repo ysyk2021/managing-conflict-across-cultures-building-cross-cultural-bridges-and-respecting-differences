@@ -1,4 +1,4 @@
-Chapter 5: Building Cross-Cultural Bridges: Collaborating Across Cultural Boundaries
+Collaborating Across Cultural Boundaries
 ====================================================================================
 
 Collaborating across cultural boundaries can be challenging but is essential for effective conflict management and building stronger relationships. In this chapter, we will explore techniques for building cross-cultural bridges through collaboration.
