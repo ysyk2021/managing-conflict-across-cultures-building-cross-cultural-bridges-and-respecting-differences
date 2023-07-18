@@ -8,5 +8,3 @@
 8. Are you struggling to understand and appreciate cultural differences in your personal and professional life? "Managing Conflict Across Cultures" provides valuable insights and strategies. #CulturalAppreciation #PersonalGrowth
 9. Ready to become a more effective communicator and mediator across cultures? Take your skills to the next level with "Managing Conflict Across Cultures". #MediationSkills #CrossCulturalCommunication
 10. Want to be a leader who creates positive change and fosters understanding across cultures? "Managing Conflict Across Cultures" is the guidebook you need. #PositiveChange #CulturalUnderstanding
-
-
