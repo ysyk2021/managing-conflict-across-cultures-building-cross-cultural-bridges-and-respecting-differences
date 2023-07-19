@@ -8,7 +8,4 @@ Whether you're a business leader, HR manager, or simply someone seeking to impro
 
 If you're looking to improve your cross-cultural communication skills and manage conflicts effectively, "Managing Conflict Across Cultures" is the guidebook you need. With practical tips, real-world examples, and actionable advice, this book will help you navigate cultural differences and build bridges that promote understanding and collaboration.
 
-
-
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
