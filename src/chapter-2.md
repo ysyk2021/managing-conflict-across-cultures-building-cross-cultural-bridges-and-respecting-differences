@@ -1,5 +1,3 @@
-Chapter 2: Overview of Cross-Cultural Conflict Management
-=========================================================
 
 Managing conflict across cultures can be a complex and challenging task. In this chapter, we will provide an overview of cross-cultural conflict management, including different perspectives and approaches, the impact of cross-cultural communication on conflict resolution, and techniques for overcoming common challenges.
 

@@ -1,5 +1,3 @@
-Chapter 6: Managing Conflict Across Cultures
-============================================
 
 Managing conflicts across cultures is essential for building stronger relationships and promoting mutual understanding. In this chapter, we will explore techniques for managing conflict across cultures, recognizing and addressing different types of conflict, and negotiation and mediation techniques.
 

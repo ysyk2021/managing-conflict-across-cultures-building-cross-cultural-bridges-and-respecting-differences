@@ -1,5 +1,3 @@
-Chapter 8: Evaluating the Effectiveness of Cross-Cultural Conflict Management
-=============================================================================
 
 Effective cross-cultural conflict management is essential for building bridges and respecting differences in a diverse workplace. However, it is equally important to evaluate the effectiveness of these conflict management practices to ensure that they are meeting the needs of all parties involved. In this chapter, we will discuss how to evaluate the effectiveness of cross-cultural conflict management.
 

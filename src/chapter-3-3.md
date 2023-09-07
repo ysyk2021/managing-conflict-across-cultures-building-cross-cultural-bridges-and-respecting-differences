@@ -1,6 +1,3 @@
-# Stereotyping and Prejudice
-
-## Introduction
 
 In our increasingly interconnected world, it is essential to recognize and address the negative impact of stereotypes and prejudice on cross-cultural interactions. Stereotyping is an inherent human tendency to categorize individuals or groups based on limited information or preconceived notions. Prejudice refers to the negative attitudes and feelings towards a particular group.
 

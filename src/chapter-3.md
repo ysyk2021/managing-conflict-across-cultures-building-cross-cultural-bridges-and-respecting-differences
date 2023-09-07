@@ -1,5 +1,3 @@
-Chapter 3: Understanding Cultural Differences
-=============================================
 
 Understanding cultural differences is essential for managing conflict across cultures. Different cultures have unique beliefs, values, customs, behaviors, and artifacts that characterize them. In this chapter, we will discuss techniques for understanding cultural differences, the relationship between culture and identity, and stereotyping and prejudice.
 

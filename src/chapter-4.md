@@ -1,5 +1,3 @@
-Chapter 4: Communicating Effectively Across Cultures
-====================================================
 
 Effective communication is essential for managing conflict across cultures. However, communication can be challenging when dealing with individuals from different cultural backgrounds who have different communication styles and norms. In this chapter, we will discuss techniques for communicating effectively across cultures, including verbal and nonverbal communication, active listening, and empathy.
 
