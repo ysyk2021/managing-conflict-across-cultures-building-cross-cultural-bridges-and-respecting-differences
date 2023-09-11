@@ -1,5 +1,4 @@
-Chapter 10: Collaborating Across Cultural Boundaries
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

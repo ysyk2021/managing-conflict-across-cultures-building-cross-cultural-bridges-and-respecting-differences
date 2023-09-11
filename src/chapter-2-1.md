@@ -1,5 +1,4 @@
-Chapter 6: Different Perspectives and Approaches to Cross-Cultural Conflict Management
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Leveraging Technology for Cross-Cultural Conflict Management
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

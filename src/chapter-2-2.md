@@ -1,5 +1,4 @@
-Chapter 4: The Impact of Cross-Cultural Communication on Conflict Resolution
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
